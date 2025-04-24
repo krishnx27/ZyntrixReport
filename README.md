@@ -40,8 +40,5 @@ https://app.powerbi.com/view?r=eyJrIjoiODlmZTk2Y2MtNWFiYS00MTRhLWE2YTUtOGQ2NWE2M
 
 
 
-I also attaching some screenshots so that you can get an idea of my work. I have shared everything else in my google drive link in google form.
-
-
  
                                              
